@@ -8,6 +8,10 @@ Her website is here:
 https://www.leannebrown.com/cookbooks/
 
 You can find her cookbook in this repo!
+=======================================================================================
+
+A full week menu is availalbe from University Health Services at University of California at Berkley:
+https://uhs.berkeley.edu/sites/default/files/sos-eatingwell5dollarsaday.pdf
 
 =======================================================================================
 Rice and Beans together make a full protein replacement.
@@ -21,4 +25,12 @@ How to Cook Dry Rice video on You Tube:
 https://www.youtube.com/watch?v=Xx7sxWI9FNI
 
 ========================================================================================
+
+Eggs are a versitile source of protein.
+
+How to Cook Eggs video on YouTube:
+https://www.youtube.com/watch?v=qWAagS_MANg
+
+========================================================================================
+
 
